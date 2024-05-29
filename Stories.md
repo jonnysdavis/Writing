@@ -1,5 +1,5 @@
 # Writing
-A collection of my creative writing
+A few examples of my short fiction. All stories posted here are around 10 pages, double spaced.
 
 You're Going To A Party
 
