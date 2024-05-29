@@ -1,5 +1,5 @@
 # Writing
-A few examples of my short fiction. All stories posted here are around 10 pages, double spaced.
+A few examples of my short fiction. Each story is under 15 pages.
 
 You're Going To A Party
 
